@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Best
+2. Friend
+3. Forever ⏳
